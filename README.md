@@ -9,7 +9,7 @@ Players & Characters
 - [Matt](People/Matt.md) as Mivo
 - [Oliver](People/Oliver.md) as Bog
 - [Pawel](People/Pawel.md) as Ayltan
-- [Sebastian](People/Sebastian.md) as Meehan
+- [Sebastian](People/Sebastian.md) as Meeham
 
 Sessions:
 - [Session 3](Sessions/Session%203.md)
