@@ -1,3 +1,7 @@
+<< [[Session 3]] | [[Session 5]] >>
+
+---
+
 - _Ayltan is downed as the trapdoor bites him._ Mivo heals him. _Then he gets downed again. Meehan is downed._ 
 - We both fail death saves
 - Bog tries to stabilise me, fails. 

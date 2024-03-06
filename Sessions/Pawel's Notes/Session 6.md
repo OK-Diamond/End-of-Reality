@@ -1,3 +1,7 @@
+<< [[Session 5]] | [[Session 7]] >>
+
+---
+
 - Bog decided to sleep on a pile of gold and gets a long rest. Then replicates a bag of holding and puts all the gold into it.
 - Bog tries to leave but goes into another poker room. There is a cleaner that tells bog that he has to go up 5 floors to leave. 
 - Bog makes it back to the street and truest to navigate to the tavern where we all drunk. On the outside, it is obvious it is a sewer. 

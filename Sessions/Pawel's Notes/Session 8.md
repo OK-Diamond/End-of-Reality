@@ -1,3 +1,7 @@
+<< [[Session 7]] | [[Session 9]] >>
+
+---
+
 - Ayltan trusts Derrick a lot, Mivo doesn’t, we say we will get out.
 - In the other pit, Horgor asks the two if they want to get out and he helps them out. 
 - The Mafia group are clerics of syrich 

@@ -1,3 +1,7 @@
+<< [[Session 10]] | [[Session 12]] >>
+
+---
+
 - We attempt to burn the village. After 2 minutes we can see the tops of the fire among the hills. We see all the fireworks go off and a massive fire is raging. 
 - Daryl the Druid approaches us, wearing leaves around his body, being outraged about the fire. Tries to put it out but kinda fails. 
 - We “explain” the fire to Daryl and go back towards the bridge. We see a rider on a horse. He enquires about the fire and we give him no answers. 

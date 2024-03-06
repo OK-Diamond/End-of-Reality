@@ -1,3 +1,7 @@
+<< [[Session 8]] | [[Session 10]] >>
+
+---
+
 - DM question: Who is Gawyn’s  first friends: Neif Almalda.
 - Mivo finds more people on the road camping. Many more bonfires in tents. Mivo goes to investigate and walks straight into a wall. He then realises that the people on the road are a painting, an imaculate, life-like painting. 
 - The painting is massive but the only thing that gives it away is that nothing is moving. Mivo attempts to break it but it is brick. The cut that he made is immediately repaired by the paint, as if it was never touched. 

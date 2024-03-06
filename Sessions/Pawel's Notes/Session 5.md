@@ -1,3 +1,7 @@
+<< [[Session 4]] | [[Session 6]] >>
+
+---
+
 - Ayltan makes an oath speech.
 - Bog plays with a meta hunk in his bag and it’s a giant metal spider that can be ridden.
 - We decide to go North and everything feels wilted and off, Meehan starts collecting berries and filling his bag of holding. 

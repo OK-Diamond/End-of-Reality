@@ -1,3 +1,7 @@
+<< [[Session 11]]
+
+---
+
 - Apparently there were stones, colours assigned to each of us. 
 - Bog ate the fucking stones. The sky says “you are the voting tokens” 
 - Ayltan shakes Bog, loses a point, puts Bog down and a bag with identical stones appears. 

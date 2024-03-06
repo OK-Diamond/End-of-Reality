@@ -1,3 +1,7 @@
+<< [[Session 9]] | [[Session 11]] >>
+
+---
+
 - We fight, people keep doing down, tent is escaped. 
 - Meanwhile Bog is shitting in a bush, the shit is a type 7 shit on the scientific scale, and it contains the ring which has been washed off. 
 - Derrick fucking dies but we all escape. 

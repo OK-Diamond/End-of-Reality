@@ -1,4 +1,6 @@
-# Pawel's Notes:
+[[Session 4]] >>
+
+---
 
 - We see the tower exploding and go to investigate. There is no panic and there is a blank gravestone in that space. People say it appeared from a long long time ago.
 - Harrow recognises us and he is very injured. He was passed out and has been awake for an hour.
