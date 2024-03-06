@@ -20,13 +20,13 @@
 - Inside is a massive stone statue of Tyr. The pink tiefling starts praying to the statue and Spert speaks from inside the statue. 
 - He’s underneath the statue and says there is a trapdoor at the back. 
 - There is an ornate chest with Spert on top of it, glowing in blue sparkles. He says he is stuck to the chest and cannot move. 
-- Bog comes back to us, mentions Gawin and Aziela throws the dagger down, along with an identical one she had. She then gets very defensive, wants to attack Bog, and when Ayltan tells her he touched the daggers she tells him to run as far as he can and stop putting others in danger.
+- **Bog comes back to us, mentions Gawin and Aziela throws the dagger down, along with an identical one she had. She then gets very defensive, wants to attack Bog, and when Ayltan tells her he touched the daggers she tells him to run as far as he can and stop putting others in danger.
 - We sleep the woman, tie her and confiscate her weapons and focus.
 - As she wakes up, the air is getting colder and everything is blacker. Gawyn then appears, everything in skulls, some amulet with black and green. Azela is frozen in fear as she sees him.
-- He says we will all die, and fires a green blast at Ayltan, which straight up kills him. Then the same happens with Mivo, then Azela dies, just Bog is alive.
+- He says we will all die, and fires a green blast at Ayltan, which straight up kills him.** Then the same happens with Mivo, then Azela dies, just Bog is alive.
 - Just before he kills her, He says he knows Azela, she says he doesn’t know her. He calls her the fiend slayer. 
-- Gawyn talks to Bog and tries to figure out why he won’t die. He then brings us back. The woman is terrified of Bog. She is very taken aback by the situation and we don’t care.
+- Gawyn talks to Bog and tries to figure out why he won’t die. He then brings us back. **The woman is terrified of Bog. She is very taken aback by the situation and we don’t care.
 - Back to Spert, he is still on the chest. But the trapdoor no longer exists into the room. He’s been 3 days in this room.
 - The woman is running after us and we all head back to Limepass. No one is phased by anything, almost as if it didn’t happen.
-- We try to find the party and go into the temple of Tyr. 
+- We try to find the party and go into the temple of Tyr.** 
 - We have a conversation through the trapdoor, and we try to open it, as soon as I touch the handle, and we roll initiative. 
