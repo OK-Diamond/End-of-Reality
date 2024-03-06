@@ -1,0 +1,48 @@
+- Apparently there were stones, colours assigned to each of us. 
+- Bog ate the fucking stones. The sky says “you are the voting tokens” 
+- Ayltan shakes Bog, loses a point, puts Bog down and a bag with identical stones appears. 
+- We have to play split and steal. 
+- Bog once announces when he’s paired with Mivo that he will steal. 
+- We then had to do a list of the order of who we want to live and who we want to die. The last place of any list gets +6. If you are the first name on your list, you lose 18 points. 
+- Ayltan comes out on top, getting pissed that this is not a reward. He wants to donate the points to someone else. 
+- We then have a box appear on a table, it has to be filled with 1000gp so we don’t die. 
+- Horgor puts 15lbs of gems and Bog puts, while Bog puts 6/10 of the total. 
+- The shit show continues where being good is rewarded and being bad is punished. 
+- Ayltan wins and gets a wish. He says he wants them all alive. He comes back alive and his wish is granted. We all appear near Mary. 
+- Bog says he wants to go back to the brewery, Ayltan grabs him and he says he NEEDS to go back. 
+- Mary is intrigued by this as she does not know what Bog means. 
+- When we mention Lady Elwynn, and I say Horgor has her. 
+- Mary teleports to Horgor and starts fucking choking him. Not saying anything.
+- Then we attempt to free Horgor but she is way too strong. Horgor throws the box to Mivo who uses mage hand to put the box 30 feet in the air. 
+- Mary jumps to Mivo and starts choking him now. Mivo throws the box to Horgor, who wants to burn the box. 
+- As soon as the box speaks. Mary is really outraged, her eyes go black and she starts shedding black tears. 
+- Meehan ignites some weed (artousse) and forced Mary to smoke it. She fails the saving throw and gets a bit high, swaying. 
+- Still choking Meehan, Bog is trying to make woodcarver’s tools. 
+- Meehan attempts to paint over her eyes to make them seem normal. But falls off, and gets high instead. 
+- Mary touches the box and gets flung 40 feet away, with burns all over her body. She is twitching and unconscious. 
+-  Then the devil that made a deal with Bog appears in front of us. Says bog completed the task, gives him vial of soul spit. 
+- The devil asks us about Mary, how we disabled her. Ayltan argues with her that she is a birch and she is all that is evil. 
+- She is willing to trade anything for the info of how we took down Mary. She is willing to trade anything. 
+- The sack pack now is Chiron, Ernie, Eli, Sterfaria, Scade, and Bastion, and Amylin. Only Chiron and Amylin are still alive. 
+- Bog mentions Dixie. The devil looks at her watch and asks how we know Dixie. Asks how long ago did Mary get downed. 
+- Dixie is an Angel/devil/demon. She worked for a lot of people, she is running around and works for people. Strong connection to Mary. 
+- The crying means they could be the person but the Devil says they cannot be the person. 
+- Dixie used to sleep with Mary’s mother but the devil does not know in what way they slept together. 
+- She says she does not have time, panicked, and disappears. 
+- Dixie, in her crying state, with angelic winged fully spread out, eyes covered in black. With a black, burning angelic sword. 
+- Her eyes return to normal. They are steel blue. 
+- Her halo is missing bits and Darell asks about it and she kinda twitches.
+- She takes Mary, we short rest on the road. 
+- Ayltan speaks to the box, she says she’s fine. She doesn’t know what caused her to damage Mary. She says she has been ignoring Horgor cos it’s funny. 
+- Horgor speaks to the box. The box says she is a soul in a box, and that she is actually Lady Elwynn. 
+- We ripped reality out so hard, and then stitched it back together so poorly that the time loop never happened. 
+- It was the same Gawyn that was in the tower that stitched realist back together together. 
+- Lady Elwynn speaks to all of us. She says she wants us to find her a body. She is a soul in a box. 
+- Bog agrees. He touches the box and says I acquiesce 50% of the control. 
+- Lady Elwynn swaps real quick says some shit about controlling a body. She says she can take control easily.
+- Bog switches back. 
+- We continue walking, do some hunting, and Horgor attempts to catch up Darrell to everything that happened. 
+- We continue hunting, and we tell people we encounter there are worms that way.
+- We make it to ring city, and we see the 3 ringed walls, each getting taller and bigger. Like ziganshina from AOT.
+- Multiple roads lead to ring city. 
+- Lady Elwynn says she caused the portals, and that she caused the time loop. Well she says Lady Elwynn did not cause it, but another one of her did. There are many of her. 
