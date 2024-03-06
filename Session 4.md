@@ -35,7 +35,9 @@
 - Gawyn talks about Chiron, and Anna. 
 - Harrow tells us to leave, we have one night and then we have to leave. We then go to the inn and take a long rest. 
 - Ayltan got a scroll:
-- 
+  - ![](images/S4I1.png)
+  - ![](images/S4I2.png)
+
 - Bog also got one. Ans Mivo. Bog ate his and Mivo said there was nothing interesting. Ayltan let the rogue read his scroll. 
 - “oh to the tales untold for years”  is heard in a whisper in the room we’re in. The rogue runs to Azelia and hears that it’s her saying it. “That maketh man hide with fear”, she then starts repeating. 
 - Meehan asks if she remembers and we tell her we died and went to hell. 
