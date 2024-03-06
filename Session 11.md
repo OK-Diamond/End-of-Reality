@@ -1,0 +1,34 @@
+- We attempt to burn the village. After 2 minutes we can see the tops of the fire among the hills. We see all the fireworks go off and a massive fire is raging. 
+- Daryl the Druid approaches us, wearing leaves around his body, being outraged about the fire. Tries to put it out but kinda fails. 
+- We “explain” the fire to Daryl and go back towards the bridge. We see a rider on a horse. He enquires about the fire and we give him no answers. 
+- We go to the town and go to an inn. We all get a long rest apart from Bog. There is a person in Bog’s room. He jumps towards them and deals damage.
+- The woman, now covered with scratches, looks at Bog really pissed. She is 7ft tall. The woman asks Bog about what he wants with his gold. He says debt and the woman says it surely isn’t that big. 
+- Bog says he wants a soul and the woman says she wants the gold for it. Bog keeps on asking about university debt, asking if souls can be traded for student debt. 
+- Bog says he wants a way of getting souls, which the woman says she does. 
+- She says that Bog released Galdron. Asks how many souls does Bog want, he says at least 5.
+- If Bog wants souls, he needs to win them, by a signature and infernal power behind it. The woman says of course she has infernal power. 
+- She pulls a large black and silver coin from a nonexistent pocket and says souls are packed into these. Soul coins. Or she says you can store them in these blood red stones. 
+- Bog signs a paper to become the devil’s apprentice. She produces a contract and Bog signs it without reading it, which makes her smile with a lot of joy. 
+- The woman says she wants Bog to kill someone in the village, trying to beat around the bush, but Bog says he killed someone already. 
+- The woman wants the owner of a Brewery near the river to die. 
+- The warm purple eggs are purple worm eggs, which Daryl discoveres. Ayltan gives the eggs to Daryl, Horgor wants to eat one, Daryl want to smash them. 
+- Bog goes down to the waterfront. Daryl goes as well to cool down the eggs. 
+- Meehan and Daryl go to the waterfront to cool the eggs. Suddenly going from very hot to very cold, the eggs begin to crack, and a beak appears out of all of them.
+- A worm-shaped creature, bigger than the egg. And Meehan and Daryl go into initiative. 
+- Daryl and Meehan fucking fight the things, more hatch every turn. Bog joins them and the combat is looking dire. 
+- Ayltan goes to sell his trinkets. He offers 124lbs of trinkets for 200gp and the seller agrees but offers a platinum bar. Ayltan says he does not want a metal bar but gold. The person is confused but runs off.
+- Horgor and Mivo go to the herbal store and ask to buy more fireweed. Horgor buys some underdark drugs. 
+- The combat continues. A half-swallowed Daryl turns into a dire wolf inside the worm’s mouth and unhinges its jaw. 
+- Everyone keeps on dying. Meehan just outright dies while the other 2 are being swallowed and keep on doing death saves inside the worms.
+- Mivo and Horgor join the combat. Horgor screams for help. Mivo shoots with a crossbow. 
+- Mivo dies as well. Horgor starts running away.
+- Ayltan goes to find a running and screaming Horgor, chased by a purple worm. 
+- We run away as the worms maul the village. We encounter Mary about 2 hours away from the village. Ayltan grovels for her to reverse this and bring them back. She kinda is not doing shit. Ayltan starts stripping. 
+- The 4 dead people are all in some dark place, with a resonant sensation that they are in pain. There is a table in front of them. 
+- Bog throws an egg to Daryl and Daryl’s negative inspiration makes him fail the catch, cracking the egg as another worm hatches.
+- As that happens, an orange writing appears in the air in front of them saying “Points//Meehan = 0 // Bog = 0 // Darrell = 0 // Mivo = 0” 
+- This is all happening on some stairs. 
+- When Jamie said he wants the others to die instead of Darrell, Darrel’s 0 changed to a -1. 
+- Mary says we can go to help our friends. Ayltan automatically agrees and appears with them. Compelled duel the worm and it kills itself. 
+- Mivo and Darrell die and go down another level, but they come back for 10 points. 
+- We see their points go down on the glowing thing. 

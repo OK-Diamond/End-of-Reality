@@ -1,44 +1,44 @@
-- Ayltan is downed as the trapdoor bites him. Bard heals him. Then he gets downed again. The sorcerer is downed. 
+- _Ayltan is downed as the trapdoor bites him._ Mivo heals him. _Then he gets downed again. Meehan is downed._ 
 - We both fail death saves
 - Bog tries to stabilise me, fails. 
 - Meehan literally fucking dies. 
-- The trapdoor finally missed me and I escaped
+- _The trapdoor finally missed me and I escaped_
 - Spert disappears, along with the box. 
 - There’s a smelly body bag in the library that Bog fled into. 
-- A ball of tentacles and fingers comes out of the trapdoor and is large currently but seems to unravel itself. 
-- It expands to huge size after downing the bard. 
-- Ayltan heals the bard and stays in melee of the weird thing. 
+-_A ball of tentacles and fingers comes out of the trapdoor and is large currently but seems to unravel itself._
+-_It expands to huge size after downing the bard._
+- _Ayltan heals the bard and stays in melee of the weird thing._
 - Literally everyone gets downed. Ayltan dies. Meehan dies. Rogue dies. Horror walks back to the hole where the warlock was. 
 - The warlock then died as well. 
 - The elf bard remained stable. 
-- Everyone who died, wakes up on a black marble floor. Like the temple. The ceiling is triple the height of a cathedral.
-- The room is echoey. 
-- A voice is echoing around the shadows. It said it bet on Valdorus’ death. It’s a human that comes out with pale white hair. He walks up towards us and is examining Valdorus’ hand.
-- The rogue says we’re in hell and the figure says that’s correct. Valdorus asks if he’s a god and he says yes of sorts.
-- Aziela does not exist. She did not exist before. The figure is a devil and says we’re the last hope of saving the reality. 
+- _Everyone who died, wakes up on a black marble floor. Like the temple. The ceiling is triple the height of a cathedral._
+- _The room is echoey._ 
+- _A voice is echoing around the shadows. It said it bet on Valdorus’ death. It’s a human that comes out with pale white hair. He walks up towards us and is examining Valdorus’ hand._
+- _The rogue says we’re in hell and the figure says that’s correct. Valdorus asks if he’s a god and he says yes of sorts._
+- _Aziela does not exist. She did not exist before. The figure is a devil and says we’re the last hope of saving the reality._
 - The rogue makes a telepathic deal with the devil to bring the other two back, bringing us all back. 
 - Bog escapes and is grabbed by someone and can’t see anything. Is brought down side streets. Bog can’t remember where they go. The hand disappears from around him and he hits the ground and starts running. 
 - There is no hint of someone being there and runs in the same loop all over again.
 - Bog eventually steals someone’s fruit basket and goes to the temple. 
 - The guards with the man go into the temple. Bog leads them inside. There is only a body of Aziela and Mivo.
 - Mivo then gets up and is interrogated by the guards, just like they did to Bog, about the body bag. 
-- We all just appear back into the library around a guard named Matt and get interrogated about the body. 
-- Meehan unwraps the body in the cloth. It’s very mummified, half remains, very very old body. 
-- Meehan starts wrapping it back up again, and feels a bony hand on his shoulder, as the body sat up and touched him. 
-- Ayltan used divine presence and it’s an undead. 
-- Valdorus puts on the ring and can hear the body speaking, but no one hears anything. 
-- We must search for Gawyn’s original ally. It wasn’t part of the pact we made. Gawyn killed it. 
-- Ayltan and rogue go to Harrow while everyone else goes to the inn. 
-- Gawyn came to Harrow with his party. They call themselves the Sack pack. One of them was executed for treason, one was exiled. There was Neif the cleric, came back later with a warlock and a wizard. 
-- He then looks at Aziela and says she is the warlock Neif came back with. There was a short fellow that kept on dying. 
-- There was a bipedal pidgeon. A halfling rogue. There was a sorcerer that got executed, they killed someone in a tavern and at trial threatened war so they were executed. 
-- Gawyn talks about Chiron, and Anna. 
-- Harrow tells us to leave, we have one night and then we have to leave. We then go to the inn and take a long rest. 
-- Ayltan got a scroll:
+- _We all just appear back into the library around a guard named Matt and get interrogated about the body._
+- _Meehan unwraps the body in the cloth. It’s very mummified, half remains, very very old body._
+- _Meehan starts wrapping it back up again, and feels a bony hand on his shoulder, as the body sat up and touched him._
+- _Ayltan used divine presence and it’s an undead._
+- _Valdorus puts on the ring_ and can hear the body speaking, _but no one hears anything._
+- _We must search for Gawyn’s original ally. It wasn’t part of the pact we made. Gawyn killed it._
+- _Ayltan and rogue go to Harrow while everyone else goes to the inn._
+- _Gawyn came to Harrow with his party. They call themselves the Sack pack. One of them was executed for treason, one was exiled. There was Neif the cleric, came back later with a warlock and a wizard._
+- _He then looks at Aziela and says she is the warlock Neif came back with. There was a short fellow that kept on dying._
+- _There was a bipedal pidgeon. A halfling rogue. There was a sorcerer that got executed, they killed someone in a tavern and at trial threatened war so they were executed._
+- _Gawyn talks about Chiron, and Anna._
+- _Harrow tells us to leave, we have one night and then we have to leave. We then go to the inn and take a long rest._
+- _Ayltan got a scroll:_
   - ![](images/S4I1.png)
   - ![](images/S4I2.png)
 
-- Bog also got one. And Mivo. Bog ate his and Mivo said there was nothing interesting. Ayltan let Horgor read his scroll. 
+- _Bog also got one._ And Mivo. _Bog ate his_ and Mivo said there was nothing interesting. Ayltan let Horgor read his scroll. 
 - “oh to the tales untold for years”  is heard in a whisper in the room we’re in. The rogue runs to Azelia and hears that it’s her saying it. “That maketh man hide with fear”, she then starts repeating. 
 - Meehan asks if she remembers and we tell her we died and went to hell. 
 - Valdorus asks Aziela if she knows Neif, she is suspicious of us knowing the name. 
