@@ -5,11 +5,11 @@ Dungeon Master
 
 Players & Characters
 - [Jamie](People/Jamie.md) as [Daryll](<Characters/Player Characters/Darryl.md>)
-- [Joey](People/Joey.md) as Horgor
-- [Matt](People/Matt.md) as Mivo
-- [Oliver](People/Oliver.md) as Bog
-- [Pawel](People/Pawel.md) as Ayltan
-- [Sebastian](People/Sebastian.md) as Meeham
+- [Joey](People/Joey.md) as [Horgor](<Characters/Player Characters/Horgor.md>)
+- [Matt](People/Matt.md) as [Mivo](<Characters/Player Characters/Mivo.md>)
+- [Oliver](People/Oliver.md) as [Bog](<Characters/Player Characters/Bog.md>)
+- [Pawel](People/Pawel.md) as [Ayltan](<Characters/Player Characters/Ayltan.md>)
+- [Sebastian](People/Sebastian.md) as [Meeham](<Characters/Player Characters/Meeham.md>)
 
 Sessions:
 - [Session 3](<Sessions/Pawel's Notes/Session 3.md>)
