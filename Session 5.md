@@ -1,0 +1,50 @@
+- Ayltan makes an oath speech.
+- Bog plays with a meta hunk in his bag and it’s a giant metal spider that can be ridden.
+- We decide to go North and everything feels wilted and off, Meehan starts collecting berries and filling his bag of holding. 
+- There are not many people. Almost as if Limepass has been put onto a road.
+- Then we see horses and a cart coming towards us. It is a woodsided cart, fancy and painted purple.
+- Ayltan asks him if he’s coming from a city. Guy says he’s a travelling merchant, and that the city is 2 days journey away.
+- Bog buys a mystery alcohol. 
+- Nothing else happens in the whole day, except a few farmers. There are a total of 12 people. 
+- We sleep and go back north. Still feels off and empty.
+- Around 9am in the morning (an hour into the journey) we’re descending into the sea in the distance. This is different to the rolling plains for hours and hours.
+- Right by the sea there is a walled settlement. The city looks like it would hold 10,000 people.
+- Our road is desolate, but there is a road to the West which is jam packed with soldiers, carts, people etc. 
+- Ayltan gets told about what happened in the church by Gordor.
+- We arrive late at night and there is a massive river that runs alongside the road and into the city. 
+- Guards tell us to stop and more come hurrying out and asking us all for names. Quick interrogation and then we’re allowed in.
+- There is a swarm of people and 8 taverns. A bridge across the river guarded by 30-40 guards. There are MASSIVE buildings on the other side of the river.
+- We go into a tavern. Order turnip stew and start eating. Someone comes in and robs the place. Ayltan stands in his way and knocks a dagger out. Party help. 
+- Bog sends a fucking metal spider to decapitate the fucking guy. We all run out and Ayltan starts arguing with the party. 
+- We then meet Aziela and she tries to walk away from us. 
+- Aziela says the real duke is duke Malcolm. Horgor tried to negotiate with her and Bog asks what she would do if she murdered someone.
+- We walk to a BAD tavern and there’s a bunch of people there and a Drow. Ayltan never saw a drow ans said he likes her skin and she didn’t seem to like that. The bartender is a FAT under dark dwarf. Offers us rooms.
+- We sell the bottles and Ayltan, Valdoris ans Bog shot it. We have to sign a Waiver to drink it beforehand. We IMMEDIATELY get drunk. 
+- The bartender offeres us a quest to get more of that alcohol.
+-  Horgor asks the barkeep about life and shit. Darris or prince Malcolm seems to be wining the war. The duke is the father of the priest. 
+- There is no Tridian army left on Korgosan soil. 
+- The ones that didn’t drink wake up nice and refreshed. 
+- The other 3 rooms are empty. 
+- We went out after we got put to bed and haven’t come back in. 
+- Ayltan wakes up half naked in a stables, with only underwear. 
+- Valdoris wakes up next to someone he doesn’t know in a VERY rich house. 
+- Bog wakes up on the floor of a room with a chest with a pile of gold in it. 
+- Valdoris’ clothes are 30 feet away from the room. He looks out the window and wakes up in the palace.
+- Bog is in a wooden box with no windows or furniture. Someone knocks on the door and asks if Bog is in there and ready to go again. 
+- There is a corridor and a big room on the other side of the corridor. There is a room with lots of men sat around the table, drinks and other stuff. 
+- Bog finds the source of the knocking, a 6ft 2” man who says Bog is on table 2. He then realised it is a poker table. Bog wins again at gambling. 
+- Ayltan walkes down the alley from the stables and is in a room, chained by manacles. A voice says that Ayltan killed someone’s men and he will be used for something. 
+- Ayltan is shown the body that he supposedly bit a chunk out of its neck. And it is dropped down a trapdoor into the room Ayltan is in. 
+- He said he can live if he carries a box to Mariana Gardens, the box is then dropped into Ayltan’s room and Ayltan attempts to open it but fails. Grabs a knife off of the body and tries to pry the chain, fails. Ayltan throws the box and does not break it. 
+- The box starts whispering but Ayltan cannot tell what it is saying. He yells that the box is talking but no one responds. 
+- Ayltan agrees to carry the box to the gardens but after he pissed off the guy. 
+- The other 3 look for the missing 3. They go to a guard and he becomes sus of Mivo and Horgor started running while Meehan started yelling thief. 
+- The guards go into a foot chase with Horgor and eventually catch him, insult him, and brutally apprehend him. 
+- Mivo tried to sneak into a prison but failed and just asked the receptionist where we are. 
+- Bog makes 715 gold gambling again. But in his chests are over 1000 gold. 
+- Back to Valdoris, he leaves the room and is greeted by a properly high dressed gentleman. He looks around the room, into the woman, and at Valdoris. The man is a grand butler (but Valdoris asked him first if he is a servant). 
+- He keeps on being in pain and calling Valdoris sir, but with a lot of cringe and pain. He asked what house Valdoris is from. The butler said that Valdoris slept with the highness.
+- He says “as you can tell. I am quite fond of your queen”, as the man looks with absolute disgust and hatred and says she is not the queen, she is the princess. 
+- The butler pushes Valdoris against a wall and says he can disappear quite easily. Asks for a house again. Valdoris says it’s a minor house. Butler says the prince will wanna meet Valdoris and they leave.
+- The butler is really threatening. 
+- Back to Ayltan, he talks to the box. It’s sentient and doesn’t wanna be there. Initially upset that Ayltan threw it. The box confirms that Ayltan killed the guy after he said something. The box wants Ayltan to figure out how to get us out of this place.
