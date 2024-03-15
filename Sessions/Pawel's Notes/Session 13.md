@@ -1,0 +1,42 @@
+- We make it to the city, get patted down and get artoos confiscated. 
+- There is a long line and we eventually make it into the city. 
+- The city is roughly twice the size of Elsatin, the rings divide the city based on wealth lines. 
+- We go into a *shit* tavern. Where people are puking on the floor, there is no barkeep. We leave.
+- There is a better tavern, called The Missing Tooth. There is a barkeep and we get our rooms. Barkeep says it’s 6, 5,6,5 sp and Mivo pays him 7. 
+- We then head to the middle ring. Guards are turning away people, and the ones that get through hand the guards some sort of paper as they go through. 
+- We are asked for entry permits and get denied access. Mivo asks someone how to get into the middle ring. 
+- Ayltan asks some random if he could see their papers, they call the guards on him so he walks away. 
+- Mivo then goes to ask someone uses suggestion and steals their permit.
+- We go back to the tavern and scheme.
+- Darrell turns into a cat and goes into the middle ring and into the church of Lathander. Speaks to a person and they do not have a ring. 
+- The person says that it is a good time to worship Lathander. “We are not affiliated with.. nevermind”
+- Person asks Darell where he is from, he says he worships the nature god, the person says that the gods worked closely. 
+- Darrell thanks, leaves and comes back as a cat. 
+- He gets locked in a room as a cat. Tries to break out and breaks his wild shape. The priests fight him and he uses an inspiration to wiggle out the window. 
+- Darrell encountered a woman in a side alley, who ran with him as soon as she saw the guards. She says he blew her cover and what is he doing. 
+- Bog and Ayltan go to a barracks and get jobs as guards after some bullshittery and tomfoolery. Sadly it’s in the outer city. 
+- The woman says she’s Aurelia, smells Darrell and asks if Darrell is from the outside. She started walking up the stairs of the inner wall. 
+- Darrell outed us being in the outer ring. Aurelia seems bothered by this, says “oh shit”. She says we did untold damage to the kingdom, or ring city. 
+- She says “they were involved in political shenanigans.” And she is not friends with us. 
+- Ayltan is really chaotic, he tries to be nice but chaos follows him whenever he goes. 
+- She tries to kick Darrell off, but misses and falls off, barely managing to grab a ledge. 
+- Darrell used this to get her to give him more information. 
+- We are constantly summoning demons, having gods chase them. If we are in the outer ring, she needs to alert her brother, so that we can be paid to go away. 
+- Neif is a massively wanted criminal throughout both Korgos and Ambosia. If we’re looking for her, then she is probably looking for us. 
+- We were with Neif the last time we were in Ring City. We have a permit to get into the inner ring. 
+- She says to tell Anna to go away. Darrell is like “who” and she asks for names of our party. Darrell lists all the names and she does a massive sigh of relief. Our party is not the party she knows, though the one she knows does consist of a kobold, a nice human and an elf.
+- Darrell asks if she would get us a permit. She says she has no reason to. Darrell mentions a demigod that follows them. 
+- Darrell mentioned Gawyn. Aurelia knows Gawyn but never met him. Darrell says we have met him, and he is afraid of Bog. 
+- Bog has a dream where he is flying above ring city, specifically above the outer ring. He phases through a window and floats above a passed out human in a bed. He bites down on his neck, with blood gushing out. 
+- Bog feels very alive, satiated and good about that. He wakes up in the morning with a slightly weird taste in his mouth. 
+- Darrell gets drugged and does not remember anything. 
+- Ayltan and Bog go back to the barracks, get told off, ask for permission to escort Lisa, and then quit the guard job. 
+- We all go to the wall and go through using invisibility. Ayltan and Bog first, then Horgor disguised as Lisa (not invisible)
+- Ayltan and Bog find the church of Lathander which is surrounded by guards and they say they are looking for “her but if they find Darrell then she might be with her” 
+- Horgor finds the church as well and speaks to the guard writing things down about the building. Asks Horgor about if he saw anything, some conversation happens. 
+- The guard ends up to be the employer of Lisa, and Horgor gets stuck in his first job. 
+- He then walks into the building and reaches the conclusion that it is a random break in. 
+- Meehan and Mivo also sneak in but are noticed, the guards are alerted but Horgor gets nominated control so he misleads the guards and we all get away. 
+- Darrell wakes up chained in a dark dungeon. There is a figure in a long trench coat but longer and puffy. 
+- The person says that Darrell is finally awake, will he make this easy or hard. Darrell says some Jamie things, and the person says alright hard then.
+- Smacks Darrell around the head with a club. Asks him where she went, and then smacks his knees. Darrell says that if he knew he would not go drinking. His other knee got smacked. 
