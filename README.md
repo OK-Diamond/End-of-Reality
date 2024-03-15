@@ -11,7 +11,7 @@ Players & Characters
 - [Pawel](People/Pawel.md) as [Ayltan](<Characters/Player Characters/Ayltan.md>)
 - [Sebastian](People/Sebastian.md) as [Meeham](<Characters/Player Characters/Meeham.md>)
 
-Sessions:
+Pawel's Notes:
 - [Session 3](<Sessions/Pawel's Notes/Session 3.md>)
 - [Session 4](<Sessions/Pawel's Notes/Session 4.md>)
 - [Session 5](<Sessions/Pawel's Notes/Session 5.md>)
@@ -22,3 +22,4 @@ Sessions:
 - [Session 10](<Sessions/Pawel's Notes/Session 10.md>)
 - [Session 11](<Sessions/Pawel's Notes/Session 11.md>)
 - [Session 12](<Sessions/Pawel's Notes/Session 12.md>)
+- [Session 13](<Sessions/Pawel's Notes/Session 13.md>)
