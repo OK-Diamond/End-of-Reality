@@ -27,4 +27,4 @@ They ask how we pretend we are so incompetent but still survive ridiculous thing
 Ayltan is being Ayltan and he says he wants some cheese. Horgor says to get a glass of milk, he says he does not want that. Horgor says to get a glass of cheese instead. 
 This turns out to be a fucking code name for like drugs or something. Ayltan and this barkeeper have a weird back-and-forth of Ayltan explaining he wants some cheese in a glass and the guy saying yes he gets that, so what does he want. 
 Horgor steps in and apologises for Ayltan and fucking orders some drugs. Pays 30lbs worth of gems to get it, gets handed a beer with a small bag underneath it. 
-We all go to our rooms and Hex is eighth next to us, saying it’s fucking unbelievable. Horgor charges at her.
+We all go to our rooms and Hex is right next to us, saying it’s fucking unbelievable. Horgor charges at her.
