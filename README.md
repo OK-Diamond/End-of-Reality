@@ -23,3 +23,4 @@ Pawel's Notes:
 - [Session 11](<Sessions/Pawel's Notes/Session 11.md>)
 - [Session 12](<Sessions/Pawel's Notes/Session 12.md>)
 - [Session 13](<Sessions/Pawel's Notes/Session 13.md>)
+- [Session 14](<Sessions/Pawel's Notes/Session 14.md>)
