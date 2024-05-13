@@ -1,0 +1,7 @@
+- Darrell teleports to us. 
+- The city becomes fake, people disappear and the voice that Darrell recognises as the god that interrogated him speaks to us. She says “round one begins” 
+- We hear a roar down the street. Combat starts and we cannot see what is coming for us. 
+- I guess it as a Manticore and got inspiration because it was a manticore. 
+- We fight the manticore and then we see we have 3 short rests and 1 long rest to use. 
+- We take one short rest.
+- After that, for round 2, we are fighting a ghost of a goblin, large sized. 
